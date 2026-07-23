@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>https;//ddkqjrszxzb.cn
+</code></p><br><br><h3>多式联运示范工程落地，物流枢纽板块走强</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https;//ddkqjrszxzb.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>超160家机构到访锂电回收龙头，回收处理产能利用率超90%。<br><br> | 来源：<code>https;//ddkqjrszxzb.org.cn
+</code></p><br><br><h3>中国马术队首次获得亚运会金牌，马术运动实现零的突破</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>https;//f1zbwxtyzb.cn
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https;//f1zbwxtyzb.com.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https;//f1zbwxtyzb.org.cn
+</code></p><br><br><h3>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>https;//fsgqzbzxgk.cn
+</code></p><br><br><h3>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https;//fsgqzbzxgk.com.cn
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>国内大模型集中落地，AI办公标的迎来估值修复。<br><br> | 来源：<code>https;//fsgqzbzxgk.org.cn
+</code></p><br><br><h3>种业振兴行动方案落地，种业标的全线异动</h3><br><p>全国居民恩格尔系数降至28.5%，消费结构持续优化升级。<br><br> | 来源：<code>https;//fsgwrk.cn
+</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>https;//fsgwrk.com.cn
+</code></p><br><br><h3>长城汽车坦克系列放量，单季业绩预告超预期</h3><br><p>职业教育法实施一周年，新增100所应用型技术大学。<br><br> | 来源：<code>https;//fsgwrk.org.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>宝钢股份板材盈利修复，前三季度业绩预增超30%。<br><br> | 来源：<code>https;//fsnbazbzxzb.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https;//fsnbazbzxzb.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>杭州亚运会场馆全面开放，年接待市民游客超千万人次。<br><br> | 来源：<code>https;//fsnbazbzxzb.org.cn
+</code></p><br><br><h3>上半年高技术产业投资同比增长12.5%，产业升级步伐加快</h3><br><p>华友钴业全产业链布局：新能源金属的全球龙头成长路径。<br><br> | 来源：<code>https;//fstylj.cn
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>招商银行财富管理优势：零售银行龙头的第二增长曲线。<br><br> | 来源：<code>https;//fstylj.com.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https;//fstylj.org.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>重庆建工涨超3.2%，西部基建投资持续加码。<br><br> | 来源：<code>https;//fstyzbappxz.cn
+</code></p><br><br><h3>三亚暑期酒店入住率超98%，高端度假产品订单暴涨</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>https;//fstyzbappxz.com.cn
