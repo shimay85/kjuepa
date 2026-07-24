@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>沪硅产业涨超5.8%，12英寸硅片产能持续释放。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>基金公司集体到访消费电子龙头，苹果新品备货量曝光。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>四川成渝放量上涨2.3%，区域路网业务持续向好</h3><br><p>全球储能市场规模突破500GWh，新型电力系统建设提速。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>需求侧响应政策落地，电力营销板块集体上涨</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>三一重工突破半年线，中期趋势逐步转强。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>全国生态环境监测网络全覆盖，实时数据向公众开放</h3><br><p>国内AI服务器出货量上半年同比增长120%，产业链全面爆发。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>全国亚洲象种群数量突破350只，人象和谐共生格局形成。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>科达利放量拉升4.7%，锂电池结构件订单饱满</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>隆基绿能单季盈利超百亿，光伏龙头业绩超预期</h3><br><p>AI生成广告内容占比超70%，营销行业效率大幅提升。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.geeksuper.cn
+</code></p><br><br><h3>通威股份全产业链成本控制：光伏硅料环节的盈利韧性</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>北向资金举牌碳化硅企业，车规级半导体获外资重仓</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>www.ousche.cn
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>北向资金单日净流入120亿，核心资产获外资集中扫货。<br><br> | 来源：<code>www.edu633.cn
