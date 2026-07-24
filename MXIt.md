@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新疆交建一带一路优势：新疆区域基建的长期成长逻辑</h3><br><p>全国夜间经济规模上半年突破18万亿元，成为消费新增长点。<br><br> | 来源：<code>https://bi-ka.com.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>https://bi-si-luntan.com.cn
+</code></p><br><br><h3>上半年全国财政收入同比增长3.7%，民生支出占比超70%</h3><br><p>全国绿色供应链示范企业超千家，带动上下游产业低碳转型。<br><br> | 来源：<code>https://bijinihushi.com.cn
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://bisiluntan.com.cn
+</code></p><br><br><h3>锦浪科技组串式逆变器技术：海外市场份额快速扩张逻辑</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://bitebishipin.org.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展。<br><br> | 来源：<code>https://blfco.cn
+</code></p><br><br><h3>超280家机构到访工业母机龙头，五轴机床量产进度超预期</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://bob-sports-pro.com.cn
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https://bocai-tangguo-web.com
+</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>希腊经济强劲复苏，成为欧元区增长明星。<br><br> | 来源：<code>https://boduoye.com.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>钠离子电池实现装车应用，钠电池产业链全线爆发。<br><br> | 来源：<code>https://boluo-shipin.com.cn
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>https://btbxx.org.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>成渝双城经济圈政策加码，成渝板块标的全线上涨。<br><br> | 来源：<code>https://bujianxingkongzaixianguankan.com.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://buxihuansesedewoma.net.cn
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://buy-2026worldcup-cn.com
+</code></p><br><br><h3>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://buy-worldcup-guide.com
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>https://buyu-dazuozhan-fuzhu.com
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>https://cai-mogu.com.cn
+</code></p><br><br><h3>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://caimogu-shequ.com.cn
+</code></p><br><br><h3>城市更新行动政策，城市更新板块走强</h3><br><p>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒。<br><br> | 来源：<code>https://caimogushequ.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>https://cang-jing-ying.com.cn
