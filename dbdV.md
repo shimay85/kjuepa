@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分07秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://91niu.com.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://91nwang.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://91pian.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>https://91piankan.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>中国男篮重返奥运会八强，世界排名提升至第12位。<br><br> | 来源：<code>https://91pojieban.cn
+</code></p><br><br><h3>央行加大逆回购操作并下调利率，短期流动性持续充裕</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://91pro.com.cn
+</code></p><br><br><h3>全国非物质文化遗产传承人超10万名，师徒传承体系完善</h3><br><p>全国200城启动夜间消费节，夜间经济规模突破15万亿。<br><br> | 来源：<code>https://91shequ.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>电力辅助服务市场扩容，储能运营标的全线异动。<br><br> | 来源：<code>https://91shi.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://91shipin.com.cn
+</code></p><br><br><h3>房地产预售资金监管优化，地产链标的全线拉升</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>https://91shipinwang.cn
+</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>https://91wangcn.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>https://91wangguanwang.com.cn
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>https://91wangye.com.cn
+</code></p><br><br><h3>中超联赛场均上座人数突破2.5万，球市全面回暖</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>https://91wangyeliulanqi.cn
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>特斯拉机器人Optimus新进展，人形机器人板块异动。<br><br> | 来源：<code>https://91wangyeliulanqimianfeiban.com.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://91wangzhandaquan.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://91wangzhi.com.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://91zaixian-guankan.com.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://91zaixianguankan.cn
