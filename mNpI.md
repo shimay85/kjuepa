@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国垒球队获得亚运会银牌，项目普及度快速提升</h3><br><p>机构专用席位净买入隆基绿能6亿，光伏龙头获长线资金布局。<br><br> | 来源：<code>https://ri-han-zaixian.com.cn
+</code></p><br><br><h3>尾矿资源综合利用政策，尾矿回收板块走强</h3><br><p>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑。<br><br> | 来源：<code>https://ri-han-zhongwenzimu.com.cn
+</code></p><br><br><h3>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>https://ri-han.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://ri-hanjingpin.com.cn
+</code></p><br><br><h3>中兴通讯算力业务爆发，单季净利润同比增80%</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>https://ri-hanmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>中国平安综合金融版图：保险+银行+投资的协同优势。<br><br> | 来源：<code>https://ri-hanoumei.com.cn
+</code></p><br><br><h3>北向资金大额增持长安汽车，自主车企外资持仓创年内新高</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://ri-hanshipin.com.cn
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://ri-hanwuma.com.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://ri-hanzaixian.com.cn
+</code></p><br><br><h3>上半年全国汽车出口突破230万辆，连续3年位居全球第一</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://ri-hanzaixianguankan.com.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>百亿私募组团到访人形机器人标的，核心零部件产能引关注。<br><br> | 来源：<code>https://ri-hanzhongwenzimu.com.cn
+</code></p><br><br><h3>恒瑞医药涨超5%，创新药管线进入收获期</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>https://riben-chengren-shipin.com.cn
+</code></p><br><br><h3>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人</h3><br><p>全国文旅消费投诉量同比下降30%，市场秩序持续优化。<br><br> | 来源：<code>https://riben-yiji-bu-ka-yier-qu.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://riben-yiquerqu.com.cn
+</code></p><br><br><h3>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一</h3><br><p>大模型开源社区活跃，国产开源大模型数量破300款。<br><br> | 来源：<code>https://ribenjiujiujiu.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧。<br><br> | 来源：<code>https://ribenlifan.com.cn
+</code></p><br><br><h3>特变电工多晶硅布局：新能源全产业链的协同成长逻辑</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://ribennuyou.com.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>氢能示范城市群政策落地，氢能源板块全线走强。<br><br> | 来源：<code>https://ribenwuma.org.cn
+</code></p><br><br><h3>旅游服务质量提升政策，景区旅游板块走强</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>https://ribenyiji.cn
+</code></p><br><br><h3>恩捷股份隔膜份额提升，单季业绩预告超预期</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://ribenyiji.com.cn
