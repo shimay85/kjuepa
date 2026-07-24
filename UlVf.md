@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分27秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>1年期LPR下调5BP，实体经济融资成本稳步下行。<br><br> | 来源：<code>https://rugzdf.cn
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>https://rumengshequ.cn
+</code></p><br><br><h3>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://rusetuxidongman.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://rutoujiaojiazu.com.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>https://rutoujiaojiazuzaixianguankan.com.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值。<br><br> | 来源：<code>https://rutoujiazu.com.cn
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>https://san-shangyouya.com.cn
+</code></p><br><br><h3>全球人工智能产业规模突破5万亿美元，中美占据主导地位</h3><br><p>炒股到最后拼的是心态：再好的牛股拿不住也是白搭。<br><br> | 来源：<code>https://sands9570.com
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>万科A存量资产运营：商业地产+物流地产的第二曲线。<br><br> | 来源：<code>https://sanji-dianying.com.cn
+</code></p><br><br><h3>种业振兴行动方案落地，种业标的全线异动</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>https://sanjipian-zh.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐。<br><br> | 来源：<code>https://sanquyi.com.cn
+</code></p><br><br><h3>国企改革三年行动收官，央企营收同比增长6.8%</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://se-daohang.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>中秋国庆旅游数据超预期，旅游酒店板块异动。<br><br> | 来源：<code>https://se-duoduo.cn
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>https://se-hu.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>https://se-hua-tang.com.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://se-huatang.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>https://se-huatang.com.cn
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>上半年高技术产业投资同比增长12.5%，产业升级步伐加快。<br><br> | 来源：<code>https://se-se-manhua.com.cn
+</code></p><br><br><h3>机器人产业发展规划发布，人形机器人板块集体上涨</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://se-se-xiaoshuo.com.cn
+</code></p><br><br><h3>国内AI人才培养体系完善，高校新增AI相关专业超千个</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://se-seshipin.com.cn
