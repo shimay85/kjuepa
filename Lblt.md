@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>https://huangguan-sports-pro.com.cn
+</code></p><br><br><h3>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军</h3><br><p>恒瑞医药出海进展：创新药产品海外授权的价值重估。<br><br> | 来源：<code>https://huangguashipinapp.cn
+</code></p><br><br><h3>沪股通席位单日买入中国中冶5300万，冶金工程标的增持</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>https://huangguashipinzaixian.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://huangguatv.com.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济。<br><br> | 来源：<code>https://huangguayingshizaixiankan.com.cn
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>全国糖尿病患者规范管理人数超8000万，并发症发生率下降。<br><br> | 来源：<code>https://huangmantiantang.com.cn
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>证监会出台资本市场提质新政，鼓励上市公司加大分红比例。<br><br> | 来源：<code>https://huangsecangkuzuixindizhi.com.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>中国围棋选手夺得世界冠军，连续十年保持世界第一。<br><br> | 来源：<code>https://huangyou-daquan.com.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>https://huangyou-wang.com.cn
+</code></p><br><br><h3>土耳其经济通胀回落至30%，金融市场逐步稳定</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://huangyou-xiazai.com.cn
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>深股通席位单日买入金龙汽车4300万，客车标的获增持。<br><br> | 来源：<code>https://huangyoumianfeixiazai.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>医疗机器人纳入医保，医疗机器人板块全线走强。<br><br> | 来源：<code>https://huangyoushouyou.com.cn
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>中国西电集团整合预期：输配电行业央企整合的价值重估。<br><br> | 来源：<code>https://huangyoutuijianshouji.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://huangyouwangyeban.org.cn
+</code></p><br><br><h3>华域汽车汽车零部件平台：国内汽车零部件龙头的价值</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>https://huangyouwangyeyouxi.com.cn
+</code></p><br><br><h3>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%</h3><br><p>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%。<br><br> | 来源：<code>https://huangyouwangzhanfenxiang.com.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%。<br><br> | 来源：<code>https://huangyouxi.com.cn
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与。<br><br> | 来源：<code>https://huangyouxiaji.com.cn
+</code></p><br><br><h3>福建高速异动拉升2.2%，海西地区车流量回暖</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>https://huangyouxiangji.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>沪股通席位单日买入金风科技1亿，风电龙头获外资增持。<br><br> | 来源：<code>https://huangyouxiaoxiong.com.cn
