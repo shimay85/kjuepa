@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>全国城市污水处理率达98%，污泥无害化处理率超90%。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>风电行业景气度回升：整机、零部件的盈利改善逻辑</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://hg-sports-net.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>全国县域商业体系建设完成，农村消费市场潜力持续释放。<br><br> | 来源：<code>https://hitozuma.com.cn
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://hmanhua.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>辽宁高速涨超1.6%，东北基建带动车流量增长。<br><br> | 来源：<code>https://hongse-shamo.com.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://hongtao-shipinwangyeban.com.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>https://hongtao-tv.com.cn
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进。<br><br> | 来源：<code>https://hongtaoshipinguanwang.com.cn
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼。<br><br> | 来源：<code>https://hongtaoshipinvip.com.cn
+</code></p><br><br><h3>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩</h3><br><p>宁德时代Q3净利润同比增长70%，大超市场预期。<br><br> | 来源：<code>https://hongtaoshipinzaixianguankan.com.cn
+</code></p><br><br><h3>中国电建绿电运营：新能源电站的长期稳定现金流价值</h3><br><p>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析。<br><br> | 来源：<code>https://hongtaoyingshidaquangaoqingoumeiju.com.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>https://hongyun-wangzhi-vip.com
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>汽车大模型落地智能座舱，语音交互响应速度低于1秒。<br><br> | 来源：<code>https://hq-biyi-tiyu.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>快递行业监管优化，快递龙头标的全线拉升。<br><br> | 来源：<code>https://hq-fbsports.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>https://hq-jb-tiyu.com.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://hq-lebeijing-sports.com.cn
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://hq-leisu-sports.com.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>建筑节能改造政策，绿色建筑板块集体上涨。<br><br> | 来源：<code>https://hq-pingbo-sports.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://hq-qiusu-sports.com.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://hq-shaba-tiyu.com.cn
