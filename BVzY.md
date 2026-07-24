@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>虾产品价格上涨15%，水产细分板块盈利弹性释放</h3><br><p>比亚迪全产业链布局：从电池到整车的垂直整合优势。<br><br> | 来源：<code>https://caoliuzuixin.cn
+</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://caoliuzuixindizhi.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>中原高速异动拉升2.2%，河南路网业务边际改善。<br><br> | 来源：<code>https://caomei-shipin-se.com.cn
+</code></p><br><br><h3>海康威视AI转型：从安防龙头到AIoT巨头的成长路径</h3><br><p>2026年经济运行稳中向好，高质量发展迈出坚实步伐。<br><br> | 来源：<code>https://caomei-shipin.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>https://caomei-shipin.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>全国淮河生态经济带建设推进，流域水质优良比例达95%。<br><br> | 来源：<code>https://caomei-shipinapp.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>国内研学旅行市场规模破千亿，覆盖超5000万中小学生。<br><br> | 来源：<code>https://caomeidaohang.cn
+</code></p><br><br><h3>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>https://caomeishipinzaixianbofang.cn
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚。<br><br> | 来源：<code>https://caomeishipinzaixianguankan.cn
+</code></p><br><br><h3>东方财富基金代销回暖，单季净利润同比增60%</h3><br><p>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%。<br><br> | 来源：<code>https://caomeishipinzaixianguankanmianfei.cn
+</code></p><br><br><h3>中国中车异动拉升3.2%，动车组新车型交付加速</h3><br><p>机构席位大额买入中国中铁6500万，基建龙头获长线布局。<br><br> | 来源：<code>https://caoshequdizhiyidizhier.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>https://cc91.cn
+</code></p><br><br><h3>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>https://chaopengzaixian.com.cn
+</code></p><br><br><h3>武夷山暑期游客量突破180万人次，茶旅融合发展成效显著</h3><br><p>俄乌冲突交换战俘达成协议，千名被俘人员获释。<br><br> | 来源：<code>https://cheng-renwangzhan.com.cn
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://cheng91.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>https://chengnian91cc.cn
+</code></p><br><br><h3>三亚暑期酒店入住率超98%，高端度假产品订单暴涨</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>https://chengren-18-jin.com.cn
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>https://chengren-dianying.com.cn
+</code></p><br><br><h3>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://chengren-free-web.com.cn
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://chengren-gaoqing.com.cn
