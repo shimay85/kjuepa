@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>CPI同比上涨0.9%，物价水平保持温和运行态势。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>紫金矿业资源储备优势：黄金铜价上行周期的业绩弹性</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>短剧行业监管规范落地，短剧板块情绪修复走强</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>全国家政服务业营收上半年同比增长16%，民生消费升温</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>streamnet-chain.com
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>mmdez.com
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>比亚迪Q3销量破百万，业绩预告同比翻倍。<br><br> | 来源：<code>linjincheng.cn
+</code></p><br><br><h3>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>51jieyan.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获7金，打破3项世界纪录</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>0357linfen.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>goosn.cn
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>紫金矿业铜金产量超预期，前三季度业绩预增80%。<br><br> | 来源：<code>jjdianqi.cn
+</code></p><br><br><h3>万华化学MDI技术优势：化工龙头的全产业链协同价值</h3><br><p>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%。<br><br> | 来源：<code>dongfangyu.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>通威股份涨超4.9%，硅料价格企稳反弹。<br><br> | 来源：<code>njaimu.cn
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>全国居民健康素养水平提升至32%，健康中国行动成效显著。<br><br> | 来源：<code>qiujob.com
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>soteam.cn
+</code></p><br><br><h3>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>shadowrobot.cn
+</code></p><br><br><h3>比亚迪全产业链布局：从电池到整车的垂直整合优势</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>shzhonglv.cn
