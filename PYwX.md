@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国分布式能源装机规模突破12亿千瓦，就地就近消纳</h3><br><p>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流。<br><br> | 来源：<code>https://kaiyun-sports-plat.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑。<br><br> | 来源：<code>https://kaiyun-tiyu-go.com.cn
+</code></p><br><br><h3>机构资金联手买入明阳智能1.2亿，风机龙头获机构抱团</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>https://kaiyun-tiyu-hq.com.cn
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>https://kaiyun-tiyu-pro.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>上半年高技术产业投资同比增长12.5%，产业升级步伐加快。<br><br> | 来源：<code>https://kaiyun-url-vip.com.cn
+</code></p><br><br><h3>汽车大模型落地智能座舱，语音交互响应速度低于1秒</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://kaiyuncom-vip.com.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://kaiyunqiumi.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>https://kan-pianwangzhan.com.cn
+</code></p><br><br><h3>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%</h3><br><p>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局。<br><br> | 来源：<code>https://kanpian-wangzhan.com.cn
+</code></p><br><br><h3>北方稀土突破前期平台，短线弹性有望释放</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>https://kanpianwang.com.cn
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>https://kanpianwangzhan.com.cn
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>https://keai-xiaoshuo.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>低空旅游市场爆发，上半年直升机观光订单同比增长200%。<br><br> | 来源：<code>https://kuai-maoapp.cn
+</code></p><br><br><h3>全国绿色供应链示范企业超千家，带动上下游产业低碳转型</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://kuai-maoduanshipin.com.cn
+</code></p><br><br><h3>平遥古城暑期游客量突破150万人次，晋商文化体验游火热</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>https://kuai-maoshipin.cn
+</code></p><br><br><h3>拉美多国签署货币互换协议，减少对美元依赖</h3><br><p>游资知名席位联手买入浙江建投1.6亿，基建标的获资金追捧。<br><br> | 来源：<code>https://kuaimaoduanshipin.com.cn
+</code></p><br><br><h3>葛洲坝异动拉升3.4%，水电工程业务持续增长</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://kuaimaoshipin.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>https://kuang-she-60-miao.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://kunbangtiaojiao.com.cn
