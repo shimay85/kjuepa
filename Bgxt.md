@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>机构专用席位净买入容百科技8800万，高镍正极龙头加仓。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>https://zh-saohuo.com.cn
+</code></p><br><br><h3>科大讯飞冲高回落，AI算力主线分歧中仍有韧性</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https://zh-sejishikong.com.cn
+</code></p><br><br><h3>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>https://zh-shaofu.com.cn
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>国产悬疑小说出海热销，海外读者追捧中国推理故事。<br><br> | 来源：<code>https://zh-shouyin.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://zh-shunu.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增。<br><br> | 来源：<code>https://zh-sm.com.cn
+</code></p><br><br><h3>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://zh-tiaojiao.com.cn
+</code></p><br><br><h3>洽洽食品坚果业务高增，前三季度业绩预增超30%</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>https://zh-wuma.com.cn
+</code></p><br><br><h3>楚天高速放量上涨2.0%，湖北区域车流量持续增长</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>https://zh-xiuxiushipin.com.cn
+</code></p><br><br><h3>产业链产品涨价类（100个）</h3><br><p>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务。<br><br> | 来源：<code>https://zh-yazhoujingpin.com.cn
+</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://zh-yazhoutiantang.com.cn
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>https://zh-yin.com.cn
+</code></p><br><br><h3>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列</h3><br><p>隆基绿能跳空高开，光伏赛道资金回流迹象明显。<br><br> | 来源：<code>https://zh-yinghuashipin.com.cn
+</code></p><br><br><h3>大模型在城市治理领域应用，事件处理响应速度提升3倍</h3><br><p>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑。<br><br> | 来源：<code>https://zh-yinluan.com.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>https://zh-yiqicao.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>https://zh-youyou.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>https://zh-yuputuan.com.cn
