@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI图像识别技术突破，缺陷检测准确率超99.5%</h3><br><p>北向资金单日净流入120亿，核心资产获外资集中扫货。<br><br> | 来源：<code>https://hei-liao-chi-gua.com.cn
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://hei-liao-shequ.com.cn
+</code></p><br><br><h3>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>https://hei-liao-wang.com.cn
+</code></p><br><br><h3>中国藤球队世锦赛包揽金牌，传统优势项目持续巩固</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>https://hei-liaobudayang.com.cn
+</code></p><br><br><h3>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://hei-liaochigua.com.cn
+</code></p><br><br><h3>先导智能技术积累：锂电设备全球龙头的核心竞争力</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>https://hei-liaochiguawang.com.cn
+</code></p><br><br><h3>汽车零部件赛道景气度上行：细分方向机会全梳理</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>https://hei-liaoshe.com.cn
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>https://hei-liaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>https://hei-si.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>https://heidayang.com.cn
+</code></p><br><br><h3>沙漠光伏基地建设规划，大基地光伏标的全线异动</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://heiliao-budayang.com.cn
+</code></p><br><br><h3>大模型在电商领域应用，AI生成商品详情页效率提升10倍</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>https://heiliaobuda.org.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>美的集团股价创年内新高，家电出口数据亮眼。<br><br> | 来源：<code>https://heiliaoliudianban.com.cn
+</code></p><br><br><h3>特变电工涨超3.3%，新能源业务盈利持续释放</h3><br><p>燃料电池汽车示范应用，燃料电池标的全线异动。<br><br> | 来源：<code>https://heiliaoshequ.com.cn
+</code></p><br><br><h3>北向资金举牌碳化硅企业，车规级半导体获外资重仓</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://heiliaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>https://heishequliao.com.cn
+</code></p><br><br><h3>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%</h3><br><p>全球新材料市场规模突破5万亿美元，支撑高端制造发展。<br><br> | 来源：<code>https://heisimeinubeicao.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>https://henhenai.com.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>https://hg-sports-hub.com.cn
