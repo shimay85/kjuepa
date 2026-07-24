@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>央行加大逆回购操作并下调利率，短期流动性持续充裕</h3><br><p>出口退税政策优化，出口导向型标的拉升。<br><br> | 来源：<code>https://kaiyun-url-vip.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>https://kaiyuncom-vip.com.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://kaiyunqiumi.com.cn
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>虚拟电厂政策试点扩容，电力信息化标的集体拉升。<br><br> | 来源：<code>https://kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>https://kan-pianwangzhan.com.cn
+</code></p><br><br><h3>安琪酵母海外收入爆发，单季业绩预告超预期</h3><br><p>皖通高速涨超2.1%，安徽区域路网盈利稳健。<br><br> | 来源：<code>https://kanpian-wangzhan.com.cn
+</code></p><br><br><h3>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>https://kanpianwang.com.cn
+</code></p><br><br><h3>多地推出名校优生引进政策，博士落户直接发放20万安家补贴</h3><br><p>成都马拉松开跑，赛道串联城市核心景点成网红赛事。<br><br> | 来源：<code>https://kanpianwangzhan.com.cn
+</code></p><br><br><h3>国内大模型集中落地，AI办公标的迎来估值修复</h3><br><p>全国储能装机容量突破3亿千瓦，新型储能占比超60%。<br><br> | 来源：<code>https://keai-xiaoshuo.com.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>https://kuai-maoapp.cn
+</code></p><br><br><h3>国内降准政策落地，大金融板块全线拉升</h3><br><p>生猪价格突破18元/公斤，养殖板块盈利拐点显现。<br><br> | 来源：<code>https://kuai-maoduanshipin.com.cn
+</code></p><br><br><h3>中医药振兴发展规划，中药全板块集体上涨</h3><br><p>新宙邦电解液业务优势：锂电电解液龙头的盈利稳定性。<br><br> | 来源：<code>https://kuai-maoshipin.cn
+</code></p><br><br><h3>中国建筑基建龙头优势：国内建筑行业的订单与规模优势</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://kuaimaoduanshipin.com.cn
+</code></p><br><br><h3>辽宁高速涨超1.6%，东北基建带动车流量增长</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>https://kuaimaoshipin.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>https://kuang-she-60-miao.com.cn
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https://kunbangtiaojiao.com.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://kunlun-xue.com.cn
+</code></p><br><br><h3>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://kuyou-ku111-login.com
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https://kuyou-login-web.com
+</code></p><br><br><h3>中国现代五项队世锦赛夺得金牌，全能项目实现突破</h3><br><p>东方电缆海缆订单爆发，前三季度业绩预增超70%。<br><br> | 来源：<code>https://ky-app-pro.com.cn
