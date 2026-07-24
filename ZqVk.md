@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>https://new-yiqicao.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>光伏组件出口数据亮眼：产业链盈利修复路径。<br><br> | 来源：<code>https://new-zaixianguankan.com.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://new-zunlongsports.com.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>https://ng-nangong-download.com
+</code></p><br><br><h3>绿色建材认证政策，绿色建材板块走强</h3><br><p>国内大模型人才缺口破百万，AI相关专业毕业生供不应求。<br><br> | 来源：<code>https://nianqing-de-muqin-zaixian-guankan.com.cn
+</code></p><br><br><h3>宁沪高速涨超2.5%，公路车流量持续复苏</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>https://nianqingde.com.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>外资单日扫货药明康德18亿，CXO赛道获外资集中流入。<br><br> | 来源：<code>https://nianqingdemuqin.net.cn
+</code></p><br><br><h3>奥地利经济复苏，旅游业和制造业双回暖</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://ningmeng-zh.com.cn
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>https://niubaqiuxun.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://niunaibaozangku.com.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>https://niunaidongman.com.cn
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>长征国家文化公园全面建成，红色旅游年接待人次突破15亿。<br><br> | 来源：<code>https://niunaidongmanku.com.cn
+</code></p><br><br><h3>吉利汽车新能源占比超50%，前三季度业绩预增超30%</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://niunaipianku.com.cn
+</code></p><br><br><h3>楚天高速放量上涨2.0%，湖北区域车流量持续增长</h3><br><p>旅游服务质量提升政策，景区旅游板块走强。<br><br> | 来源：<code>https://nu-gong.com.cn
+</code></p><br><br><h3>露营经济持续升温，全国露营地数量突破4万个</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://nu-lu-nan-chugui-bi-qu-ge-jian-jun-1.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客。<br><br> | 来源：<code>https://nu-nu.com.cn
+</code></p><br><br><h3>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https://nuan-nuan-ai-shipin-mianfei.com.cn
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>https://nutong.com.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://nuwangtiaojiao.com.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https://nuxingluoti.com.cn
