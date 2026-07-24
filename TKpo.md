@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>https://naipiandongman.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>https://naiqiudongman.com.cn
+</code></p><br><br><h3>天邦食品涨超4.1%，养殖业务减亏效果显著</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://naishui-dongman.com.cn
+</code></p><br><br><h3>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局</h3><br><p>中国高尔夫球业余选手夺得职业赛事冠军，人才储备充足。<br><br> | 来源：<code>https://naishuidonghua.com.cn
+</code></p><br><br><h3>皖通高速涨超2.1%，安徽区域路网盈利稳健</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://naishuidongman.com.cn
+</code></p><br><br><h3>伊利股份产品矩阵：全品类乳制品的市场覆盖优势</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://naishuidongmanzaixian.com.cn
+</code></p><br><br><h3>浙江建投异动拉升4.7%，浙江共同富裕区基建加码</h3><br><p>全球电动汽车销量突破2500万辆，市场份额持续提升。<br><br> | 来源：<code>https://naishuileyuan.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑。<br><br> | 来源：<code>https://naishuimanhua.com.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https://naishuipianku.com.cn
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>东方电气氢能布局：能源装备龙头的第二成长曲线解析。<br><br> | 来源：<code>https://nan-cha-nu-mianfeishipin.com
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>https://nan-tong-wang.com.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖。<br><br> | 来源：<code>https://nan-tongshipin.com.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>https://nan-tongwang.com.cn
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>https://nan-tongwangzhan.com.cn
+</code></p><br><br><h3>特高压工程集中获批，电网设备板块全线异动</h3><br><p>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破。<br><br> | 来源：<code>https://nana-qingliang-ban.com.cn
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>中国男足世预赛1-0击败韩国，提前锁定2026世界杯出线名额。<br><br> | 来源：<code>https://nangong-group-download.com
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>通威股份低位反弹，超跌后的修复行情持续性判断。<br><br> | 来源：<code>https://nangongqiubao.com.cn
+</code></p><br><br><h3>正泰电器户用光伏优势：分布式光伏龙头的渠道壁垒</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>https://nannubaluobo.com.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>五粮液中秋动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://nannuzuoaishipin.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>https://nanrenhuanggong.cn
