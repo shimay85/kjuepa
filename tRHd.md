@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产古装剧出海热播，海外流媒体播放量突破10亿次</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>https://xiuxiu-shipin.com.cn
+</code></p><br><br><h3>东数西算工程新节点开工，IDC算力板块走强</h3><br><p>上半年全国网上零售额同比增长9.5%，直播电商贡献突出。<br><br> | 来源：<code>https://xiuxiushipin.org.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>https://xiuxiushipinwang.com.cn
+</code></p><br><br><h3>央行下调再贷款再贴现利率，小微和三农融资成本下行</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>https://xiuxiuwuyefulimianfeishipin.cn
+</code></p><br><br><h3>全国水土流失治理面积年度完成6万平方公里，生态修复提速</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展路径。<br><br> | 来源：<code>https://xrbylf.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>https://ya-se-tu.com.cn
+</code></p><br><br><h3>种业振兴行动方案落地，种业标的全线异动</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>https://ya-xing-guan-wang.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>https://yanggongfeinawolaicaonile.org.cn
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>https://yaojingshipinyumingrukou.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠。<br><br> | 来源：<code>https://yaojiujiuai.com.cn
+</code></p><br><br><h3>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://yazhou-jingpin.com.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>丽江暑期民宿入住率达95%，云南文旅市场持续回暖。<br><br> | 来源：<code>https://yazhou-jiujiujiu.com.cn
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>https://yazhou-tiantang.cn
+</code></p><br><br><h3>全国钢铁行业超低排放改造完成，减排效果达国际先进水平</h3><br><p>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑。<br><br> | 来源：<code>https://yazhou-tiantang.com.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://yazhou-wuma.com.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳。<br><br> | 来源：<code>https://yazhou-yiqu.com.cn
+</code></p><br><br><h3>全国红色旅游暑期人次破3亿，年轻人占比超60%</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://yazhou-yiquerqu.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益。<br><br> | 来源：<code>https://yazhou-zaixian.com.cn
+</code></p><br><br><h3>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://yazhouguochan.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>中国网球选手首次夺得大满贯单打冠军，创造历史突破。<br><br> | 来源：<code>https://yazhoujingpinshipin.com.cn
