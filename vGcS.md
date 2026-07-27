@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码</h3><br><p>光伏组件出口创历史新高，光伏海外链标的走强。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>全国储能装机容量突破3亿千瓦，新型储能占比超60%</h3><br><p>生猪收储政策启动，养殖板块迎来反弹催化。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>厄尔尼诺现象加剧，农业抗旱标的全线走强。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国社区健身站点覆盖率达100%，15分钟健身圈全面建成</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>AI语音合成技术突破，克隆声音仅需3秒样本</h3><br><p>东部地区率先实现高质量发展，人均GDP突破12万元。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>日本央行结束负利率政策，日元汇率回升至130关口</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿</h3><br><p>洋河股份异动拉升4.0%，梦之蓝系列动销超预期。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>房地产预售资金监管优化，地产链标的全线拉升</h3><br><p>半导体产业扶持基金落地，大基金二期标的全线拉升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>全国老年大学体育课程覆盖超千万老人，健康老龄化推进</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料</h3><br><p>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>大模型在建筑领域应用，BIM模型生成效率提升4倍</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>www.hebccpi.com
