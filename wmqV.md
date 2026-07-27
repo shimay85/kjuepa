@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>机构资金集中买入海大集团6300万，饲料龙头获机构抱团。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>上汽集团海外市场布局：传统车企出口的长期增长逻辑。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>小米汽车交付量超预期，小米汽车产业链全线爆发</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>牧原股份涨超4.7%，生猪价格周期拐点显现</h3><br><p>多地推出“文旅+科技”项目，元宇宙景区落地超100家。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局</h3><br><p>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>全国居民储蓄存款增速放缓，资金向消费和投资领域转移。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>人工智能与大模型应用（100条）</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北向资金单日买入正泰电器4700万，户用光伏龙头获流入</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>东方财富放量大涨，券商板块异动激活市场人气</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列</h3><br><p>正邦科技放量上涨4.5%，债务重组进展顺利。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.www.abc.jx.cn
