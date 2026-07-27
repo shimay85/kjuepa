@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元</h3><br><p>澜起科技内存接口芯片优势：全球细分赛道的龙头价值。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>新疆暑期游客量突破5000万人次，西部文旅市场爆发。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>全国工业用水重复利用率达92%，节水型工业体系建成</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%</h3><br><p>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>老旧小区改造升级，家装家居标的全线拉升</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>公募基金集中调研IDC龙头，AI算力上架率创历史新高。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>消费券集中发放，大消费板块迎来情绪催化。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>地方国资战略入股人形电机龙头，助力核心零部件国产化</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>6G技术研发推进计划，通信设备板块全线异动</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>大模型在新闻领域应用，AI生成快讯占比超60%</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>大运河国家文化公园全面建成，沿线文旅融合项目超千个</h3><br><p>全国保障性住房建设进度过半，年内新开工超300万套。<br><br> | 来源：<code>www.tpyqczl.com
