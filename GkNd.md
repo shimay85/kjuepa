@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>大模型开源社区活跃，国产开源大模型数量破300款</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>多地出台民宿管理新规，规范行业发展保障游客权益。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>注册制全面落地，券商投行业务标的全线拉升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>四川成渝放量上涨2.3%，区域路网业务持续向好</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>中部地区崛起新政策落地，打造先进制造业增长极。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>央行新增5000亿元支小再贷款，精准支持小微企业发展</h3><br><p>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>黄河流域生态保护取得阶段性成效，水质优良比例达92%。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>中国-东盟自贸区3.0版谈判完成，贸易便利化升级。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>光伏组件出口数据亮眼：产业链盈利修复路径。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>三亚暑期酒店预订量同比增长35%，滨海度假持续火热。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>成都大运会成功举办一周年，赛事遗产带动城市文旅增长</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>www.thepodala.com
