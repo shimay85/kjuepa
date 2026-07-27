@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>白酒行业产业政策引导，高端白酒板块集体上涨。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>北方华创设备布局：半导体设备全品类覆盖的龙头价值。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>上半年全国汽车出口突破230万辆，连续3年位居全球第一。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>全国校园足球特色校破2万，青少年足球人才储备加厚。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护</h3><br><p>全球氢能产业投资突破5000亿美元，商业化进程加速。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>大模型在铁路领域应用，调度系统安全性和效率双提升。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>大北农种业布局：转基因商业化下的种业龙头成长逻辑</h3><br><p>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>天邦食品涨超4.1%，养殖业务减亏效果显著</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>www.szdesign-art.com
