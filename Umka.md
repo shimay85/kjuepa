@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值。<br><br> | 来源：<code>https://maomishequ.cn
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>全国文旅数字化升级，超500家景区实现AR导览全覆盖。<br><br> | 来源：<code>https://mayaluntan.cn
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>https://meilidexiaomitao.com.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人。<br><br> | 来源：<code>https://meimeidaohang.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长。<br><br> | 来源：<code>https://meinu-bei-cao.com.cn
+</code></p><br><br><h3>中拉经贸合作论坛举办，达成超200亿美元合作协议</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>https://meinu-bei-gan.com.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://meinu-bei-ri.com.cn
+</code></p><br><br><h3>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://meinu-beicao.com.cn
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://meinu-gao-ji.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>全国体育场馆免费或低收费开放，年接待群众超10亿人次。<br><br> | 来源：<code>https://meinu-huangsexiaoshuo.com
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://meinu-wangzhan-se.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>https://meinubeicao.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>亨通光电海缆业务放量，前三季度业绩预增超45%。<br><br> | 来源：<code>https://meinuluoti.org.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://meinushipin-app.com
+</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>https://meinushipin.com.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>暑期托管服务全面推行，免费提供兴趣课程和作业辅导。<br><br> | 来源：<code>https://meinutuoyifu.com.cn
+</code></p><br><br><h3>铅价上涨7%，铅酸电池板块盈利边际改善</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>https://meinuziwei.com.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>亨通光电涨超4.4%，海洋能源业务贡献增量。<br><br> | 来源：<code>https://meinuziwei.net.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://meiri-dasai-yandex-guan-wang.com.cn
+</code></p><br><br><h3>全国固定资产投资同比增长5.1%，制造业投资增速领先</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://meiri-dasai-yandex.com.cn
