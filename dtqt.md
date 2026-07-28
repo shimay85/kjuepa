@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://bijinihushi.com.cn
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径。<br><br> | 来源：<code>https://bisiluntan.com.cn
+</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://bitebishipin.org.cn
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://blfco.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团。<br><br> | 来源：<code>https://bob-sports-pro.com.cn
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>全国夜间体育赛事活动超千场，赛事经济带动周边消费。<br><br> | 来源：<code>https://bocai-tangguo-web.com
+</code></p><br><br><h3>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>https://boduoye.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>https://boluo-shipin.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>https://btbxx.org.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧</h3><br><p>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑。<br><br> | 来源：<code>https://budayangheiliao.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://bujianxingkongzaixianguankan.com.cn
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https://buliangyanjiusuo.com.cn
+</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://buxihuansesedewoma.net.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://buy-2026worldcup-cn.com
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>半导体产业扶持基金落地，大基金二期标的全线拉升。<br><br> | 来源：<code>https://buy-worldcup-guide.com
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>https://buyu-dazuozhan-fuzhu.com
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https://cai-mogu.com.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>央行下调SLF利率，货币政策宽松取向进一步明确。<br><br> | 来源：<code>https://caimogu-shequ.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://caimogushequ.com.cn
+</code></p><br><br><h3>全国戏曲进乡村演出超百万场，传统艺术扎根基层</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>https://cang-jing-ying.com.cn
