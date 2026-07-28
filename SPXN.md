@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国中车涨超3.3%，海外轨交订单持续落地</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>https://buxihuansesedewoma.net.cn
+</code></p><br><br><h3>海大集团饲料市占率提升，单季业绩预告超预期</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://buy-2026worldcup-cn.com
+</code></p><br><br><h3>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>https://buy-worldcup-guide.com
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>https://buyu-dazuozhan-fuzhu.com
+</code></p><br><br><h3>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破</h3><br><p>中国男子体操队世锦赛团体夺冠，重回世界巅峰。<br><br> | 来源：<code>https://cai-mogu.com.cn
+</code></p><br><br><h3>腾讯云大模型生态开放，接入超十万第三方应用</h3><br><p>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓。<br><br> | 来源：<code>https://caimogu-shequ.com.cn
+</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://caimogushequ.com.cn
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://cang-jing-ying.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌。<br><br> | 来源：<code>https://cangjingkong.com.cn
+</code></p><br><br><h3>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>https://cangjingyou.com.cn
+</code></p><br><br><h3>登海种业玉米种子需求超预期，单季业绩预告超预期</h3><br><p>小鹏汽车单季交付破3万，业绩亏损大幅收窄。<br><br> | 来源：<code>https://cao-bi-dongtaitu.com.cn
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>招商银行股价修复，银行板块高股息属性获资金青睐。<br><br> | 来源：<code>https://cao-liu.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://cao-liudizhi.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>https://cao-liujishutaolunqu.cn
+</code></p><br><br><h3>全国工业企业利润同比增长8.7%，盈利水平持续修复</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>https://cao-liuluntan.cn
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>https://cao-liushequ.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>https://cao-liuwang.cn
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://caodengheshang.cn
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房。<br><br> | 来源：<code>https://caoliuapp.cn
+</code></p><br><br><h3>国内大模型创业融资额破千亿，资本持续加码赛道</h3><br><p>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑。<br><br> | 来源：<code>https://caoliucl.cn
